@@ -30,7 +30,7 @@
 - :rocket: Always ready to collaborate for Dev Experiments
 - :dart: Life Hack: "Explore :fire: and Explode :bomb: with knowledge"
 - :trophy: Silver medal on "International Indonesia Iot 2022" - Software Edition
-- :zap: Fun fact: I love to attend Meetups for learning & Conferences for Networking<br>
+- :zap: Fun fact: Iam fan of itachi🙈<br>
 
 <h2 align="left">:heart: Let's get connected:</h2>
 
